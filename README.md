@@ -1,1 +1,1 @@
-# AI---The-latest-research--My-thoughts
+# AI-The-latest-research-My-thoughts
